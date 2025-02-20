@@ -17,7 +17,7 @@ Our mission is to enhance accessibility to innovative neuroscience technology, e
 ## Get Involved
 Join us in revolutionizing neuroscience equipment access. Explore our platform, connect with manufacturers, and contribute to advancing brain science.
 
-For more information, visit our website at [NeuraMed](https://neuramed.com) or follow us on our social media channels.
+For more information, visit our website at www.neuramedicals.com or follow us on our social media channels.
 
 ---
 
